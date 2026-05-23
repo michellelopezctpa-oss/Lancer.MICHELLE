@@ -1,2 +1,0 @@
-# Lancer.MICHELLE
-Lancer
